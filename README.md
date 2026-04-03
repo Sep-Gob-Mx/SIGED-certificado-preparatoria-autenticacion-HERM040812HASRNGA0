@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HERM040812HASRNGA0
+HERM040812HASRNGA0
